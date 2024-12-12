@@ -1,2 +1,1 @@
-Hey there!
-Feel free to explore my repositories below. If you have any feedback, want to collaberate, or just simply chat, you can reach me at saadbasheer0@gmail.com.
+Hello, all! Please feel free to peruse the repositories below. If you have any feedback or suggestions, want to collaborate, or just chat, you can reach me at saadbasheer0@gmail.com.
